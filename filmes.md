@@ -4,6 +4,12 @@ Liga da Justiça
 
 X-Men
 
+Capitão America
+
+Homem de Ferro
+
+Hulk
+
 Logan
 
 Deadpool
